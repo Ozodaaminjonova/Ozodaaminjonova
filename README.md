@@ -4,8 +4,8 @@
 - 💞️ I’m looking to collaborate with software engineering
 - 📫 How to reach me: 
 - Phone(+998 99 165 19 54) 
-- Telegram: @Developer3039 
-- Email:ozodaaminjonova3039@gmail.com
+- Telegram: @s0ft_engin_lady 
+- Email:ozodaaminjonova214@gmail.com
 
 <!---
 Ozodaaminjonova/Ozodaaminjonova is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
